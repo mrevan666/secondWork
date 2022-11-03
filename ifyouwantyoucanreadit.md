@@ -1,3 +1,3 @@
 # secondWork
 
-You can see result in decrib
+You can see result in about)))
